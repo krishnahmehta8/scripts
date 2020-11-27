@@ -1,0 +1,2 @@
+# 29c0f36a2f6251d20795e41c5ed3aed6
+MySense Technology Assignment
